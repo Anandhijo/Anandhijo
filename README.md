@@ -1,5 +1,5 @@
 ### Hi there 👋
-I am Anandalakshmi J. I am pursuing 2nd year.I am interested to learn new things. I will utilize it properly.To work in an environment which encourage me to succeed and professionally where i can utilize my skills and knowledge appropriately. I seek opportunities where i can use  my full skills for the success of this organisation. I am interested in web development and i have a basic knowledge on HTML,CSS.
+I am Anandalakshmi J. I am pursuing 3rd year.I am interested to learn new things. I will utilize it properly.To work in an environment which encourage me to succeed and professionally where i can utilize my skills and knowledge appropriately. I seek opportunities where i can use  my full skills for the success of this organisation. I am interested in web development and i have a basic knowledge on HTML,CSS.
 
 
 - 🔭  I'm Student in Ethiraj College For Women(pursuing)
