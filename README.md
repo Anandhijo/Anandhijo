@@ -3,7 +3,7 @@ I am Anandalakshmi J. I am pursuing 3rd year.I am interested to learn new things
 
 
 - 🔭  I'm Student in Ethiraj College For Women(pursuing)
-- 🌱 I’m currently learning  Web Development Course and 2nd year B.Sc Computer science student
+- 🌱 I’m currently learning  Web Development Course and pursuing 3rd year B.Sc Computer science student
 - 👯 I’m looking to collaborate on  Internships,Projects
 - 🤔 I’m looking to have a good skill on web develpoment.
 - 📫 How to reach me: anandhijo24@gmail.com
